@@ -1,6 +1,6 @@
 Hi, I’m @nathanposton
 
-[My Resume](https://docs.google.com/document/d/1cMV2HY__6pynlRzJPKZHIQ7VdBNhmP3m1BW3_kMjUTg/edit?usp=sharing)
+[Resume, Click Here](https://docs.google.com/document/d/1cMV2HY__6pynlRzJPKZHIQ7VdBNhmP3m1BW3_kMjUTg/edit?usp=sharing)
 
 Me:
 - Arizona native
