@@ -4,7 +4,7 @@ Hi, I’m @nathanposton
 
 Me:
 - Arizona native
-- Keyboard enthusiast
+- Mechanical Keyboard enthusiast
 - BYU Bachelor of Computer Science (soon)
 
 Currently seeking:
