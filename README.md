@@ -6,7 +6,7 @@ Hi, I’m Nathan Poston
 Me:
 - Arizona native
 - Mechanical Keyboard enthusiast
-- BYU Bachelor of Computer Science (soon)
+- BYU alumni
 
 Currently employed as a Full-Stack Web Developer at RTA: The Fleet Success Company
 
