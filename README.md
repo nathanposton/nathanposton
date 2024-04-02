@@ -1,7 +1,7 @@
 Hi, I’m Nathan Poston
 
 
-[Resume, Click Here](https://docs.google.com/document/d/1cMV2HY__6pynlRzJPKZHIQ7VdBNhmP3m1BW3_kMjUTg/edit?usp=sharing) (out of date)
+[Resume, Click Here](https://docs.google.com/document/d/1cYxxhOMbTk2lERa-PXHZ7je21tMozdYg5Lrk2kcvXsc/edit?usp=sharing)
 
 Me:
 - Arizona native
