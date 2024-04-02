@@ -7,6 +7,7 @@ Me:
 - Arizona native
 - Mechanical Keyboard enthusiast
 - BYU alumni
+- 5e D&D DM & Sorcerer
 
 Currently employed as a Full-Stack Web Developer at RTA: The Fleet Success Company
 
